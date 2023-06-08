@@ -1,2 +1,1 @@
-# vps
-for linknode
+dHJvamFuOi8vRVBoNmU4SnFlU0B2cHMuaGp5aGouaWN1OjMyMDAwI3BjYm9va193b3Jrc3BhY2U=
